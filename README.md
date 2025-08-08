@@ -8,8 +8,8 @@
 ---
 
 ## 📫 Bisa kontak aku di:
-- Email: fitrah@email.com
-- LinkedIn: [linkedin.com/in/fitrah-agung](https://linkedin.com/in/fitrah-agung)
+- Email: banyuaji911@email.com
+- LinkedIn: [linkedin.com/in/fitrahagungbanyuaji](https://linkedin.com/in/fitrahagungbanyuaji)
 
 Terima kasih sudah mampir! 😊
 
